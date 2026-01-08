@@ -15,4 +15,4 @@ Qui puoi trovare i miei contatti diretti per comunicare con me o visitare il mio
 ---
 
 Grazie mille! 😊  
-Ti aspetto nel mio negozio. 🙏
+Ti aspettiamo kebab di via Roma. 🙏
